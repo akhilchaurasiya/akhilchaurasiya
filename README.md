@@ -8,9 +8,9 @@
 
 - 🔭 I’m currently working on **Real Time Chat Application**
 
-- 🌱 I’m currently learning **ReactJs and Php**
+- 🌱 I’m currently learning **Springboot**
 
-- 💬 Ask me about **Web development , C++**
+- 💬 Ask me about ** Java , JSP , Web development , C++**
 
 - 📫 How to reach me **akhilchaurasiya74@gmail.com**
 
