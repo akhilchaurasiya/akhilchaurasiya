@@ -12,7 +12,7 @@
 
 - 🌱 I’m currently learning **Springboot**
 
-- 💬 Ask me about ** Java , JSP , Web development , C++**
+- 💬 Ask me about **Java , JSP , Web development , C++**
 
 - 📫 How to reach me **akhilchaurasiya74@gmail.com**
 
