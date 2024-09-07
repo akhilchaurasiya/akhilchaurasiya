@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **akhilchaurasiya74@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1adANPdwYhpzCCCCxtJubuvbsiEBtUTkL/view?usp=drivesdk](https://drive.google.com/file/d/1adANPdwYhpzCCCCxtJubuvbsiEBtUTkL/view?usp=drivesdk)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1adANPdwYhpzCCCCxtJubuvbsiEBtUTkL/view?usp=drivesdk](https://drive.google.com/file/d/1g4PPmV_UfmMPR9iHZqvJnOt6s_211Vb5/view?usp=drivesdk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
